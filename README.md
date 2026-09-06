@@ -1,0 +1,1 @@
+My project is about how students around this campus can connect with eachother throug interactions with eachother
